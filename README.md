@@ -1,2 +1,2 @@
 # Ccr
-Donner pour église 
+pour églis
